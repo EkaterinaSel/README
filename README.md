@@ -1,4 +1,3 @@
 # README
-✌ Hi, I'm Kate
-👀 I'm IT Recruiter
+✌ Hi, I'm Kate and I'm IT Recruiter)
 📍 Locate in Moscow, Russia
